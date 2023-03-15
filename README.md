@@ -1,5 +1,5 @@
-# MICAH KATE ARAYAN
+# **MICAH KATE ARAYAN**
+=======================
 ## NGANONG GREEN MAN ANG COLOR SA PUREGOLD?
-###### MICAH KATE ARAYAN
-###### FERDINAND INCHOCO
-###### JOSHUA OROZCO
+=================================
+###### *WA LAGE KO KAILA LAGEEE*
